@@ -1,0 +1,1 @@
+This tribute page is dedicated to Levi Ackerman, an character from the manga and anime "Attack on Titan".
